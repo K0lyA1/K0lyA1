@@ -1,0 +1,5 @@
+- 👋 Hi, I’m OLEG
+- 👀 I’m interested in Igrat v kamputer
+- 🌱 I’m currently learning Kamputer
+- 💞️ I’m looking to collaborate on cumputers
+- 📫 How to reach me 10000000 dollars
